@@ -2,5 +2,8 @@
 layout: slide
 title: "Welcome to our second slide"
 ---
-my name is psk
-Use the left arrow to go back!
+abcdefgh
+alphabet us grest
+make america great again
+di liun e mote
+ dgak.rhjsfda
